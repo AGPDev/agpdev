@@ -1,5 +1,5 @@
 
-### 💻 Full Stack Developer at [Multiplier](https://github.com/multiplierx)<br> <br>
+### 💻 CTO at [Multiplier](https://github.com/multiplierx)<br> <br>
 
 📌 Jaraguá do Sul, SC - Brazil<br>
 
