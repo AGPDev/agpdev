@@ -1,5 +1,5 @@
 
-### 💻 CTO at [Multiplier](https://github.com/multiplierx)<br> <br>
+### 💻 Tech Lead at [SCOD Brasil](https://www.linkedin.com/company/scod-brasil/)<br> <br>
 
 📌 Jaraguá do Sul, SC - Brazil<br>
 
